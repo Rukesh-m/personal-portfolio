@@ -1,1 +1,8 @@
-<video src="Personal-portfolio-vid-2025-08-17-at-19.02.06-copy.mp4" width="320" height="240" controls></video>
+
+
+https://github.com/user-attachments/assets/acb26be7-c6e0-4c29-842e-aad0db0cdba0
+
+
+
+https://github.com/user-attachments/assets/e12635aa-010f-43a3-923b-5d34b935c1f3
+
